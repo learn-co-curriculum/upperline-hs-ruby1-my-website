@@ -1,4 +1,4 @@
-# My Super Awesome and Amazing Website!!!!!
+# My Super Awesome and Amazing Website For Those who are looking for personalized website!!!!!!
 
 **Welcome to your personalized website!**  What better way to show off everything you've learned today than to build out your very own website that's all about YOU!!!!
 
